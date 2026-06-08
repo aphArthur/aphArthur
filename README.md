@@ -9,6 +9,6 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 
 
 <p align="center">
-  <img alt="Image" src="https://github.com/user-attachments/assets/4fcdcae0-f296-4295-8722-0f7abb0044d6" />
+  <img width="2400" height="200" alt="Image" src="https://github.com/user-attachments/assets/188d2870-4b80-4672-8444-e62fbd289762" />
 </p>
 
