@@ -60,6 +60,10 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 <p align="right">
 <img src="https://github.com/user-attachments/assets/c7f1076b-a638-4db9-a0c6-bb8eadb5c896" width="18%" />
 </p>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/def65286-e43f-4c43-babf-3275837f434e" width="50%" />
+  <br>
+  “ Unhand me, you fobbish twit! ”
 <br>
 <h2>🏴󠁧󠁢󠁥󠁮󠁧󠁿: ABOUT ME</h2>
 <img src="https://github.com/user-attachments/assets/3b9f5480-5a51-492d-85bc-7448a845d62c" width="5%" />
@@ -70,10 +74,10 @@ I am an 𝘈𝘳𝘵𝘩𝘶𝘳 𝘒𝘪𝘯𝘯𝘪𝘦 and you may call me �
 <img src="https://github.com/user-attachments/assets/1493f851-addc-41cb-9478-1c654e771170" width="50%" />
 </p>
 <br>
-I post art on <a href="https://www.instagram.com/uk.sqep?igsh=aTAwc3FxNXM0YzR3" target="_blank">INSTAGRAM</a> and <a href="https://www.tiktok.com/@sqep.uk?_r=1&_t=ZS-973pYmihYsD" target="_blank">TIK TOK</a>
+I post art on <a href="https://www.instagram.com/uk.sqep?igsh=aTAwc3FxNXM0YzR3" target="_blank">INSTAGRAM</a> and <a href="https://www.tiktok.com/@sqep.uk?_r=1&_t=ZS-973pYmihYsD" target="_blank">TIK TOK</a> . I originally came from the Countryhumans fandom so most of my posts are about Countryhumans but I'm starting to draw more Hetalia.
 <br>
-<img width="167" height="310" alt="Image" src="https://github.com/user-attachments/assets/bdd7519e-340c-452a-8843-13b5042d6398" />
+<img src="https://github.com/user-attachments/assets/bdd7519e-340c-452a-8843-13b5042d6398" width="18%" />
 <p align="center">
-  <img width="2048" height="82" alt="Image" src="https://github.com/user-attachments/assets/d6e8052a-b4ae-46a7-95e7-3d87081bbb9a" />
+  
 </p>
 
