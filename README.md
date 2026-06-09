@@ -89,3 +89,9 @@ I post art on <a href="https://www.instagram.com/uk.sqep?igsh=aTAwc3FxNXM0YzR3" 
 <p align="center">
   $$\textcolor{#0e5763}{\boldsymbol{\text{𝗜 𝗹𝗼𝘃𝗲 𝗺𝘆 𝘀𝗼𝗻.ᐟ.ᐟ}}}$$
 </p>
+<p align="center">
+<img src="https://github.com/user-attachments/assets/9f67e23a-3068-4a4b-b239-91f9a976d033" width="50%" />
+<br>
+I love fruk but I will never admit it personally!! <img src="https://github.com/user-attachments/assets/fa37a2fc-1523-449c-9d55-cc1768d78cb5" width="3%" />
+<br>
+<img src="https://github.com/user-attachments/assets/d13c56b5-64cd-4d68-b126-2809fa2f64ba" width="50%" />
