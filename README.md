@@ -31,7 +31,7 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 </p>
 <p align="center">
   </pre>
-  $$\textcolor{#159481}{\boldsymbol{\text{𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ}}}$$
+  $$\textcolor{#1ac98f}{\boldsymbol{\text{𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ}}}$$
   <br>
   ➜ FRUK Shippers
   <br>
