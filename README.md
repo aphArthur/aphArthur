@@ -26,10 +26,10 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
   </pre>
 </p>
 
+<p align="right">
 <img src="https://github.com/user-attachments/assets/c7f1076b-a638-4db9-a0c6-bb8eadb5c896" width="25%" />
-
+</p>
 <br>
-<img width="667" height="1193" alt="Image" src="https://github.com/user-attachments/assets/c7f1076b-a638-4db9-a0c6-bb8eadb5c896" />
 <img width="167" height="310" alt="Image" src="https://github.com/user-attachments/assets/bdd7519e-340c-452a-8843-13b5042d6398" />
 <p align="center">
   <img width="2048" height="82" alt="Image" src="https://github.com/user-attachments/assets/d6e8052a-b4ae-46a7-95e7-3d87081bbb9a" />
