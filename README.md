@@ -13,7 +13,7 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 <br>
 <br>
 <p align="center">
-  ## DNI !!
+  $$\textcolor{#c7baaa}{\boldsymbol{\text{𝗩ä𝗹𝗸𝗼𝗺𝗺𝗲𝗻.}}}$$
 </p>
 
 
