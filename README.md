@@ -26,9 +26,9 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
   <br>
   ➜ NSFW skins / roleplayers
   <br>
-  <br>
 ➜ <a href="https://dni-criteria.carrd.co/" target="_blank">Basic DNI Criteria</a>
   </pre>
+  <br>
   <br>
   <img src="https://github.com/user-attachments/assets/d6e8052a-b4ae-46a7-95e7-3d87081bbb9a" width="50%" />
 </p>
