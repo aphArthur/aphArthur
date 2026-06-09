@@ -78,6 +78,14 @@ I post art on <a href="https://www.instagram.com/uk.sqep?igsh=aTAwc3FxNXM0YzR3" 
 <br>
 <img src="https://github.com/user-attachments/assets/bdd7519e-340c-452a-8843-13b5042d6398" width="18%" />
 <p align="center">
-  
+  <img src="https://github.com/user-attachments/assets/327df948-4d27-411e-a1e1-8187bc3a5e79" width="50%" />
+  <br>
+  “ One cannot call themselves an adult until they can enjoy a good tea! "
 </p>
-
+<br>
+<h2>🇬🇧🇨🇦：My son and I . . ૮₍ ˃ ⤙ ˂ ₎ა </h2>
+<img src="https://github.com/user-attachments/assets/e75b751e-11ab-4bbf-829f-3f9cacf9d94f" width="18%" />
+<img src="https://github.com/user-attachments/assets/afdfece9-6452-4b3b-8454-b64359af9e16" width="24%" />
+<p align="center">
+  $$\textcolor{#0e5763}{\boldsymbol{\text{𝗜 𝗹𝗼𝘃𝗲 𝗺𝘆 𝘀𝗼𝗻.ᐟ.ᐟ}}}$$
+</p>
