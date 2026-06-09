@@ -26,7 +26,7 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
   </pre>
 </p>
 
-<img src="https://github.com/user-attachments/assets/c7f1076b-a638-4db9-a0c6-bb8eadb5c896" width="50%" />
+<img src="https://github.com/user-attachments/assets/c7f1076b-a638-4db9-a0c6-bb8eadb5c896" width="25%" />
 
 <br>
 <img width="667" height="1193" alt="Image" src="https://github.com/user-attachments/assets/c7f1076b-a638-4db9-a0c6-bb8eadb5c896" />
