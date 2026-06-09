@@ -9,10 +9,7 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
   <img width="480" height="240" alt="Image" src="https://github.com/user-attachments/assets/5e77d85b-7965-4ba5-8852-14ef8d8c7d19" />
 </p>
 <br>
-<p align="center">
-<h1>GOD SAVE THE QUEEN</h1>
-</p>
-<br>
+<h2>GOD SAVE THE QUEEN</h2>
 <br>
 <br>
 <p align="center">
