@@ -29,6 +29,7 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 ➜ <a href="https://dni-criteria.carrd.co/" target="_blank">Basic DNI Criteria</a>
   </pre>
 </p>
+<img src="https://github.com/user-attachments/assets/d6e8052a-b4ae-46a7-95e7-3d87081bbb9a" width="30%" />
 <p align="center">
   </pre>
   $$\textcolor{#1ac98f}{\boldsymbol{\text{𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ}}}$$
