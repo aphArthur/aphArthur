@@ -14,7 +14,7 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 <br>
 <p align="center">
   </pre>
-  $$\textcolor{#159481}{\boldsymbol{\text{__𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ__}}}$$
+  $$\textcolor{#159481}{\boldsymbol{\text{𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ}}}$$
   <br>
   ➜ USUK Shippers
   <br>
