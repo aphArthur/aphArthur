@@ -22,6 +22,10 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
   <br>
   ➜ NeoNaz!s
   <br>
+  ➜ Proshippers
+  <br>
+  ➜ NSFW skins / roleplayers
+  <br>
 ➜ <a href="https://dni-criteria.carrd.co/" target="_blank">Basic DNI Criteria</a>
   </pre>
 </p>
