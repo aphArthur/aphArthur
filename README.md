@@ -29,7 +29,19 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 ➜ <a href="https://dni-criteria.carrd.co/" target="_blank">Basic DNI Criteria</a>
   </pre>
 </p>
-
+<p align="center">
+  </pre>
+  $$\textcolor{#159481}{\boldsymbol{\text{𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ}}}$$
+  <br>
+  ➜ FRUK Shippers
+  <br>
+  ➜ Francis Kins / Cosplayers
+  <br>
+  ➜ UK Brothers Cosplayers / Kins
+  <br>
+  ➜ Hetalia fans
+</p>
+<br>
 <p align="right">
 <img src="https://github.com/user-attachments/assets/c7f1076b-a638-4db9-a0c6-bb8eadb5c896" width="20%" />
 </p>
