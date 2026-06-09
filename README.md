@@ -25,6 +25,8 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 ➜ <a href="https://dni-criteria.carrd.co/" target="_blank">Basic DNI Criteria</a>
   </pre>
 </p>
+
+![alt text](https://github.com/user-attachments/assets/c7f1076b-a638-4db9-a0c6-bb8eadb5c896.png)
 <img width="667" height="1193" alt="Image" src="https://github.com/user-attachments/assets/c7f1076b-a638-4db9-a0c6-bb8eadb5c896" />
 <img width="167" height="310" alt="Image" src="https://github.com/user-attachments/assets/bdd7519e-340c-452a-8843-13b5042d6398" />
 <p align="center">
