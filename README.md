@@ -13,7 +13,7 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 <br>
 <br>
 <p align="center">
-  $$\textcolor{#147855}{\boldsymbol{\text{DNI!!.}}}$$
+  $$\textcolor{#147855}{\boldsymbol{\text{𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ.}}}$$
 </p>
 
 
