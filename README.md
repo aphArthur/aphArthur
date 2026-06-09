@@ -22,7 +22,7 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
   <br>
   ➜ NeoNaz!s
   <br>
-➜ <a href="https://dni-criteria.carrd.co/" target="
+➜ <a href="https://dni-criteria.carrd.co/" target=Basic DNI Criteria"
   </pre>
 </p>
 
