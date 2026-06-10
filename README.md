@@ -110,3 +110,13 @@ I get socially drained very easily so if you're the type to require attention 24
 I love fruk but I will never admit it personally!! <img src="https://github.com/user-attachments/assets/fa37a2fc-1523-449c-9d55-cc1768d78cb5" width="3%" />
 <br>
 <img src="https://github.com/user-attachments/assets/d13c56b5-64cd-4d68-b126-2809fa2f64ba" width="50%" />
+<br>
+  <br>
+  <br>
+  <br>
+  <br>
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=zzifjxbqm6nzapxa1c117cw3y&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=zzifjxbqm6nzapxa1c117cw3y&cover_image=true&theme=default&show_offline=true&background_color=2b5569&interchange=true&profanity=false&hide_remaster=false&bar_color=47947e">
+  </a>
+</p>
