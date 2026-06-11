@@ -96,9 +96,10 @@ I get socially drained very easily so if you're the type to require attention 24
   “ One cannot call themselves an adult until they can enjoy a good tea! "
 </p>
 <br>
-<h2>🇬🇧🇨🇦：My son and I . . ૮₍ ˃ ⤙ ˂ ₎ა </h2>
-<img src="https://github.com/user-attachments/assets/e75b751e-11ab-4bbf-829f-3f9cacf9d94f" width="18%" />
-<img src="https://github.com/user-attachments/assets/afdfece9-6452-4b3b-8454-b64359af9e16" width="24%" />
+<h2>🇬🇧🇨🇦🇺🇸：My sons and I . . ૮₍ ˃ ⤙ ˂ ₎ა </h2>
+<img src="https://github.com/user-attachments/assets/e75b751e-11ab-4bbf-829f-3f9cacf9d94f" width="20%" />
+<img src="https://github.com/user-attachments/assets/afdfece9-6452-4b3b-8454-b64359af9e16" width="30%" />
+<img src="https://github.com/user-attachments/assets/99985029-ec0f-4300-bd5c-6bfe334b9290" width="40%" />
 <p align="center">
   $$\textcolor{#0e5763}{\boldsymbol{\text{𝗜 𝗹𝗼𝘃𝗲 𝗺𝘆 𝘀𝗼𝗻.ᐟ.ᐟ}}}$$
 </p>
