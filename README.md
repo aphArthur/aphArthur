@@ -67,7 +67,7 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 <br>
 <h2>🏴󠁧󠁢󠁥󠁮󠁧󠁿: ABOUT ME</h2>
 <img src="https://github.com/user-attachments/assets/3b9f5480-5a51-492d-85bc-7448a845d62c" width="5%" />
-I am an 𝘈𝘳𝘵𝘩𝘶𝘳 𝘒𝘪𝘯𝘯𝘪𝘦 and you may call me 𝗔𝗿𝘁𝗵𝘂𝗿 even if we're OOC. I do both serious and joke roleplays, feel free to ask me if you'd like to do serious rp with me. I go by 𝙃𝙚/𝙏𝙝𝙚𝙢. 𝗜 𝗔𝗠 𝟭𝟵 𝗬𝗘𝗔𝗥𝗦 𝗢𝗟𝗗!! Minors, 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘤𝘢𝘶𝘵𝘪𝘰𝘯. I also have an online son who is a Canada Kinnie and he is very precious to me. I am quite new in the Hetalia fandom so please treat me with respect. <sup>I've had experiences where old gens would be rude to me just because I'm a new gen.</sup>
+I am an 𝘈𝘳𝘵𝘩𝘶𝘳 𝘒𝘪𝘯𝘯𝘪𝘦 and you may call me 𝗔𝗿𝘁𝗵𝘂𝗿 even if we're OOC. I do both serious and joke roleplays, feel free to ask me if you'd like to do serious rp with me. I go by 𝙃𝙚/𝙏𝙝𝙚𝙢. 𝗜 𝗔𝗠 𝟭𝟵 𝗬𝗘𝗔𝗥𝗦 𝗢𝗟𝗗!! Minors, 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘤𝘢𝘶𝘵𝘪𝘰𝘯. I also have 2 online sons who are a Matthew Kinnie and an Alfred Kinnie. They are very precious to me. I am quite new in the Hetalia fandom so please treat me with respect. <sup>I've had experiences where old gens would be rude to me just because I'm a new gen.</sup>
 <br>
 <br>
 <p align="center">
@@ -97,7 +97,8 @@ I get socially drained very easily so if you're the type to require attention 24
 </p>
 <br>
 <h2>🇬🇧🇨🇦🇺🇸：My sons and I . . ૮₍ ˃ ⤙ ˂ ₎ა </h2>
-<img src="https://github.com/user-attachments/assets/e75b751e-11ab-4bbf-829f-3f9cacf9d94f" width="25%" />
+<img src="https://github.com/user-attachments/assets/bfe71806-187f-49a3-8713-3ac67b5813b2" width="25%" />
+<img src="https://github.com/user-attachments/assets/6728197b-bdce-4372-9ac6-f561936d753c" width="20%" />
 <img src="https://github.com/user-attachments/assets/afdfece9-6452-4b3b-8454-b64359af9e16" width="30%" />
 <img src="https://github.com/user-attachments/assets/99985029-ec0f-4300-bd5c-6bfe334b9290" width="40%" />
 <img src="https://github.com/user-attachments/assets/7031e6ae-f2b2-49af-8beb-352cf4356dd4" width="40%" />
