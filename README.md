@@ -97,14 +97,23 @@ I get socially drained very easily so if you're the type to require attention 24
 </p>
 <br>
 <h2>🇬🇧🇨🇦🇺🇸：My sons and I . . ૮₍ ˃ ⤙ ˂ ₎ა </h2>
-<img src="https://github.com/user-attachments/assets/bfe71806-187f-49a3-8713-3ac67b5813b2" width="25%" />
-<img src="https://github.com/user-attachments/assets/6728197b-bdce-4372-9ac6-f561936d753c" width="20%" />
+<br> 
+<img src="https://github.com/user-attachments/assets/bfe71806-187f-49a3-8713-3ac67b5813b2" width="26%" />
+<img src="https://github.com/user-attachments/assets/3e4ec384-27fe-4516-93f0-2e93d33c3b65" width="25%" />
 <img src="https://github.com/user-attachments/assets/afdfece9-6452-4b3b-8454-b64359af9e16" width="30%" />
 <img src="https://github.com/user-attachments/assets/99985029-ec0f-4300-bd5c-6bfe334b9290" width="40%" />
 <img src="https://github.com/user-attachments/assets/7031e6ae-f2b2-49af-8beb-352cf4356dd4" width="40%" />
 <p align="center">
   $$\textcolor{#0e5763}{\boldsymbol{\text{𝗜 𝗹𝗼𝘃𝗲 𝗺𝘆 𝘀𝗼𝗻.ᐟ.ᐟ}}}$$
 </p>
+<br>
+<h2>🇬🇧🇲🇫： My husband and I . . (⸝⸝乛-乛⸝⸝)</h2>
+<img src="https://github.com/user-attachments/assets/7368c6b7-de9a-4216-b5c8-c89ad3b94382" width="25%" />
+<img src="https://github.com/user-attachments/assets/a5434093-d1f6-47ac-b7fc-6d6dc4231c41" width="25%" />
+<img src="https://github.com/user-attachments/assets/33c1c8b5-9998-4f50-84dd-7253bc8a4699" width="25%" />
+<img src="https://github.com/user-attachments/assets/f72eb98f-5fac-43e3-82ab-afab462e027c" width="25%" />
+<img src="https://github.com/user-attachments/assets/230da98b-c811-4305-a536-6d5a85252dd3" width="40%" />
+<br>
 <p align="center">
 <img src="https://github.com/user-attachments/assets/9f67e23a-3068-4a4b-b239-91f9a976d033" width="50%" />
 <br>
