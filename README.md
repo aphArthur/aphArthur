@@ -148,6 +148,8 @@ I get socially drained very easily so if you're the type to require attention 24
   ↻ ◁ II ▷ ↺ 1:35 ───ㅇ───── 3:47
   <br>
   <br>
+  <br>
+  <br>
   <img src="https://github.com/user-attachments/assets/c290fa0d-981b-439c-b84b-2233aa03d7a2" width="100%" />
 <br>
 </p>
