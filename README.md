@@ -13,9 +13,8 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 
 <br>
 <div align="center">
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=900&size=30&duration=2000&pause=1000&color=131CC2&width=435&lines=%22++++RULE+BRITANNIA+!+!+%22+" alt="Typing SVG" /></a>
-
+⠀⠀⠀⠀⠀<img src="https://github.com/user-attachments/assets/de3fee20-7509-4a80-ae1c-34a01b747580" width="10%" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=900&size=30&duration=2000&pause=1000&color=131CC2&width=435&lines=%22+RULE+BRITANNIA+!+!%22+" alt="Typing SVG" /></a>
 </div>
 <br>
 <p align="center">
