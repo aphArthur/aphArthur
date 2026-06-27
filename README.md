@@ -82,11 +82,18 @@ I post art on <a href="https://www.instagram.com/uk.sqep?igsh=aTAwc3FxNXM0YzR3" 
 <br>
 I often sit in either the Hetalia area or Countryhumans area. Most of the time I might be offtab or AFK but feel free to whisper me if you'd like to interact! (๑ᵔ⤙ᵔ๑) 
 <br>
-<p align="center">
-  🌙 : Off-tab / On menu (Whisp to Int)
-  <br>
-⛔️ : Online , Feel free to interact
-</p>
+<div align="center">
+<table border="0" cellpadding="0" cellspacing="0" width="100%">
+  <tr>
+    <td align="middle" valign="middle">
+     🌙 : Off-tab / On menu (Whisp to Int)
+     <br>
+     ⛔️ : Online , Feel free to interact
+    </td>
+  </tr>
+</table>
+</div>
+
 I get socially drained very easily so if you're the type to require attention 24/7 then I might not be the person you'd want to interact with. I will sometimes give dry responses if I feel drained so please respect that. I am not the type to interact first so you'd need to make the first move if you'd like to interact or sit with me.
 <br>
 <img src="https://github.com/user-attachments/assets/bdd7519e-340c-452a-8843-13b5042d6398" width="18%" />
