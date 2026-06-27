@@ -9,11 +9,14 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
   <img width="480" height="240" alt="Image" src="https://github.com/user-attachments/assets/5e77d85b-7965-4ba5-8852-14ef8d8c7d19" />
   <br>
 </p>
-<p align="center">
-  $$\textcolor{#131cc2}{\boldsymbol{\text{𝐑𝐮𝐥𝐞 𝐁𝐫𝐢𝐭𝐚𝐧𝐧𝐢𝐚}}}$$
-  <br>
-  <br>
-</p>
+
+<br>
+<div align="center">
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=900&size=30&duration=2000&pause=1000&color=131CC2&width=435&lines=%22++++RULE+BRITANNIA+!+!+%22+" alt="Typing SVG" /></a>
+
+</div>
+<br>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ddc93ef3-1e25-4b4d-8f41-afacec43cdbc" width="100%" />
 
