@@ -15,45 +15,40 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
   <br>
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/0cef29d8-28fe-468e-8f8c-134902b17402" width="100%" />
+  <img src="https://github.com/user-attachments/assets/ddc93ef3-1e25-4b4d-8f41-afacec43cdbc" width="100%" />
 </p>
-<br>
 <br>
 <p align="center">
-  </pre>
-  $$\textcolor{#97fcc5}{\boldsymbol{\text{𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ}}}$$
-  <br>
-  ➜ USUK Shippers <sub>(I see them as family.)</sub>
-  <br>
-  ➜ CanAme Shippers
-  <br>
-  ➜ NeoNaz!s
-  <br>
-  ➜ Proshippers
-  <br>
-  ➜ NSFW skins / roleplayers
-  <br>
-➜ <a href="https://dni-criteria.carrd.co/" target="_blank">Basic DNI Criteria</a>
-  </pre>
-  <br>
-  <br>
-  <img src="https://github.com/user-attachments/assets/889d7f98-0c89-4c73-9c41-5d7d0dfb25e6" width="20%" />
+⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀ <img src="https://github.com/user-attachments/assets/4fbf08f3-4af7-4af2-8a2d-1114e0eab801" width="15%" />
 </p>
+<div align="center">
 
+  
+  | ⠀⠀⠀⠀⠀⠀⠀ $$\textcolor{#97fcc5}{\boldsymbol{\text{𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ}}}$$⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ |
+  | ------------- |
+  |   ➜ USUK Shippers <sub>(I see them as family.)</sub>  | Content Cell  |
+  |   ➜ CanAme Shippers  | Content Cell  |
+  |   ➜ NeoNaz!s  |
+  |   ➜ Proshippers  |
+  |   ➜ NSFW skins / roleplayers. |
+  |   ➜ <a href="https://dni-criteria.carrd.co/" target="_blank">Basic DNI Criteria</a> |
+</div>
+<br>
 <p align="center">
-  </pre>
-  $$\textcolor{#7efcb7}{\boldsymbol{\text{𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ}}}$$
-  <br>
-  ➜ FRUK Shippers
-  <br>
-  ➜ Francis Kins / Cosplayers
-  <br>
-  ➜ Germany Kins <sub>(I LOVE GERMANY)</sub>
-  <br>
-  ➜ UK Brothers Cosplayers / Kins
-  <br>
-  ➜ Hetalia fans
-  <br>
+<img src="https://github.com/user-attachments/assets/889d7f98-0c89-4c73-9c41-5d7d0dfb25e6" width="20%" />
+</p>
+<br>
+<div align="center">
+ 
+ |  ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $$\textcolor{#7efcb7}{\boldsymbol{\text{𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 .ᐟ.ᐟ}}}$$ ⠀⠀⠀⠀⠀⠀⠀  |
+ | -------------: |
+ |  FRUK Shippers ☕︎ |
+ |  Francis Kins / Cosplayers ☕︎
+ |  Germany Kins <sub>(I LOVE GERMANY)</sub> ☕︎
+ |  UK Brothers Cosplayers / Kins ☕︎
+ |  Hetalia fans ☕︎
+ </div>
+<p align="center">
   <sup>I accept any ships with Arthur as long as they're not related and it's not colonizer x colonized.</sup>
 </p>
 <br>
