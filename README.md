@@ -16,6 +16,11 @@ Retrieved 2026-06-09, License - CC BY-SA 4.0
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ddc93ef3-1e25-4b4d-8f41-afacec43cdbc" width="100%" />
+
+  <br>
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=aphArhur.aphArthur&left_color=Green&right_color=LightGreen&left_text=VISITORS&style=flat_square"/> ⠀⠀
+  <img src="https://github.com/user-attachments/assets/edcb726e-d5cd-4f1d-aa1a-e65c8ac61f9f" width="3%" />⠀⠀
+  <img alt="GitHub followers" src="https://img.shields.io/github/followers/aphArthur?style=flat&label=BRITISH&labelColor=0f872f&color=8deba4">
 </p>
 <br>
 <p align="center">
@@ -127,4 +132,5 @@ I love fruk but I will never admit it personally!! <img src="https://github.com/
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=zzifjxbqm6nzapxa1c117cw3y&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=zzifjxbqm6nzapxa1c117cw3y&cover_image=true&theme=default&show_offline=true&background_color=2b5569&interchange=true&profanity=false&hide_remaster=false&bar_color=47947e">
   </a>
-</p>
+
+ </p>
